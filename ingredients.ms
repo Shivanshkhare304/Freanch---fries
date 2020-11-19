@@ -1,0 +1,1 @@
+Potato,oil,salt  black papper , black salt and water.
